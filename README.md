@@ -5,6 +5,4 @@
 
 LinkedIn: https://www.linkedin.com/in/sagarpatel0824/
 
-Website:  
-
-E-mail:
+E-mail: sagar.patel0824@gmail.com
